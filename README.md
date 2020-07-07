@@ -2,9 +2,9 @@
 ## 永 久 域 名：888QP.NET
 ## 下载地址：
 ## ⭐️ 👉<a href="http://www-888qp.com">HttpS://www-888qp.com</a>
-## ⭐️ 👉 手机版地址一：
+## 手机版地址一：
 ## ⭐️ 👉<a href="http://www.888qp03.com">888qp03.com</a>
-## ⭐️ 👉 手机版地址二：
+## 手机版地址二：
 ## ⭐️ 👉<a href="http://www.888qp04.com">888qp04.com</a>
 ## ⭐️ 👉  <a href="https://www.888qpkf.com">在线客服</a>
 ## ‼️‼️点击访问或长按复制到浏览器里面访问以上网址‼️‼️
