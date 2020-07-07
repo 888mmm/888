@@ -1,5 +1,5 @@
 # 888棋牌 最新地址发布 
-## 永 久 域 名：888QP.VIP
+## 永 久 域 名：888QP.NET
 ## ⭐️ 👉 下载地址：<a href="http://www-888qp.com">HttpS://www-888qp.com</a>
 ## ⭐️ 👉 手机版地址一：<a href="http://www.888qp03.com">888qp03.com</a>
 ## ⭐️ 👉 手机版地址二：<a href="http://www.888qp04.com">888qp04.com</a>
